@@ -1,4 +1,8 @@
-# Sta
+# Statement of thanks for the Premi Ciutat de Barcelona 2017 in Ciències de la terra i ambientals
+
+John Palmer
+15 February 2018
+
 I am honored to receive this award from the City of Barcelona. The recognition from a government body that citizen scientists can help solve the problem of mosquito-borne disease is important and I thank the Barcelona Institute of Culture and the members of the jury for their work and their decision. I am especially happy to see this recognition from the city that I have come to love as my adopted home. The efforts of tens of thousands of Mosquito Alert volunteers have vastly improved our ability to understand and manage disease vector mosquitoes in Barcelona and throughout the region. I hope it will soon be possible to harness this energy around the world to stop the spread of diseases that burden hundreds of millions of people and drive poverty.
 
 I thank, above all, my family. The work I have put into this project has been shared by my wife, Mireia Artigot, and our children, Emma and Albert, who have made it possible for me to devote time to it, and who have entered the world of mosquitoes and citizen science along with me, giving me ideas, enthusiasm and love. This work has been shared also by my parents-in-law, Maria Golobardes and Manel Artigot, who have made me feel at home in Barcelona and dedicated endless time to caring for our children. And it has been shared by my parents, Penny and David Palmer, who spent much their lives helping me be a citizen scientist myself.
