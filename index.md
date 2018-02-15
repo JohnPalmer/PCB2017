@@ -1,4 +1,4 @@
-# Statement of thanks for the Premi Ciutat de Barcelona 2017 in Ciències de la terra i ambientals
+# Personal statement of thanks for the Premi Ciutat de Barcelona 2017 in Ciències de la terra i ambientals
 
 John Palmer
 
